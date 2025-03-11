@@ -1,0 +1,1 @@
+# Generator_otazek_osetrovatelstvi
